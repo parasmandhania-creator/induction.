@@ -28,7 +28,7 @@ Our respected Principal, **Mr. Sehaj Pal Singh**, played a **crucial role** in t
 He personally **welcomed and honoured the chief guest**, ensuring a warm and respectful environment for everyone involved.
 
 Sir has always led the institution with **dedication, discipline, and vision**, and his involvement in events like this reflects the **strong leadership and foundational values** he brings to our college.
-
+![Principal Sir](https://drive.google.com/uc?export=view&id=1W6Tb_8CIgulA92Dx2UePvSRvialW228_)
 
 ---
 
@@ -43,7 +43,6 @@ Mr. Garg’s presence reminded us that **growth starts when we step out of our c
 ---
 ## 💸 Singla Sir 
 I completely forgot his name therefore I used his  **surname "Singla"**, He  has his working profession in **financae sector**, He tell us about that how we can solve our finicial problem And apply for loan with 0% interest. Personlay i like their speech , the way He told us about loans or etc. is **awosome and greatful**.
-![17542449235104645489358886010109](https://github.com/user-attachments/assets/a430d5e2-517e-4fb2-bf72-d785117e6587)
 
 
 ### 📝 Conclusion
@@ -56,7 +55,8 @@ Just like **Day 1**, today we all gathered again at the **Auditorium Hall**. The
 
 ## 🏆 Scholarship Session
 One of the key highlights of the day was an informative session by members of a **Scholarship Community**. They introduced us to the **Satyam Scholarship Scheme**, which is a great opportunity for students from financially weaker backgrounds. All the students listened attentively, showing great interest and discipline.
-![Principal Sir](https://drive.google.com/uc?export=view&id=1W6Tb_8CIgulA92Dx2UePvSRvialW228_)
+![17542449235104645489358886010109](https://github.com/user-attachments/assets/a430d5e2-517e-4fb2-bf72-d785117e6587)
+
 
 
 ## 🏫 About GNDEC
