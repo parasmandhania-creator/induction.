@@ -15,7 +15,11 @@ Tranumreet's presence added charm to the event, and her anchoring played a major
 ---
 
 ##  Mrs.Harpreet kaur Grewal (HOD: Applied Science)
+
 She has well communictaion skill she taught us about moral values and how to deal with people or students of different branches.
+![17542448138217579677308605946385](https://github.com/user-attachments/assets/426fbf91-3c66-434d-9253-c8d7eb5ee545)
+
+
 ## 👨‍🏫 Mr. Sehaj Pal Singh (Principal)
 
 Our respected Principal, **Mr. Sehaj Pal Singh**, played a **crucial role** in the successful execution of the day's program. His **inspiring words** motivated the students and encouraged them to approach this new journey with positivity and confidence.
