@@ -17,6 +17,7 @@ Tranumreet's presence added charm to the event, and her anchoring played a major
 ##  Mrs.Harpreet kaur Grewal (HOD: Applied Science)
 
 She has well communictaion skill she taught us about moral values and how to deal with people or students of different branches.
+
 ![17542448138217579677308605946385](https://github.com/user-attachments/assets/426fbf91-3c66-434d-9253-c8d7eb5ee545)
 
 
@@ -43,6 +44,8 @@ Mr. Garg’s presence reminded us that **growth starts when we step out of our c
 ---
 ## 💸 Singla Sir 
 I completely forgot his name therefore I used his  **surname "Singla"**, He  has his working profession in **financae sector**, He tell us about that how we can solve our finicial problem And apply for loan with 0% interest. Personlay i like their speech , the way He told us about loans or etc. is **awosome and greatful**.
+![17542449235104645489358886010109](https://github.com/user-attachments/assets/a430d5e2-517e-4fb2-bf72-d785117e6587)
+
 
 ### 📝 Conclusion
 
