@@ -18,7 +18,7 @@ Tranumreet's presence added charm to the event, and her anchoring played a major
 
 She has well communictaion skill she taught us about moral values and how to deal with people or students of different branches.
 
-![17542448138217579677308605946385](https://github.com/user-attachments/assets/426fbf91-3c66-434d-9253-c8d7eb5ee545)
+![](https://github.com/user-attachments/assets/426fbf91-3c66-434d-9253-c8d7eb5ee545)
 
 
 ## 👨‍🏫 Mr. Sehaj Pal Singh (Principal)
@@ -29,7 +29,6 @@ He personally **welcomed and honoured the chief guest**, ensuring a warm and res
 
 Sir has always led the institution with **dedication, discipline, and vision**, and his involvement in events like this reflects the **strong leadership and foundational values** he brings to our college.
 
-![Principal Sir](https://drive.google.com/uc?export=view&id=1W6Tb_8CIgulA92Dx2UePvSRvialW228_)
 
 ---
 
@@ -57,9 +56,13 @@ Just like **Day 1**, today we all gathered again at the **Auditorium Hall**. The
 
 ## 🏆 Scholarship Session
 One of the key highlights of the day was an informative session by members of a **Scholarship Community**. They introduced us to the **Satyam Scholarship Scheme**, which is a great opportunity for students from financially weaker backgrounds. All the students listened attentively, showing great interest and discipline.
+![Principal Sir](https://drive.google.com/uc?export=view&id=1W6Tb_8CIgulA92Dx2UePvSRvialW228_)
+
 
 ## 🏫 About GNDEC
 I would like to mention something special about **GNDEC** – the environment here is truly motivational. It encourages us to build a successful future. The **teachers are extremely helpful, kind-hearted**, and maintain strong connections with the students, which creates a positive learning atmosphere.
+![17542451028572769040765255808743](https://github.com/user-attachments/assets/7bfda492-7e6a-49f9-98f5-369d11fd5dea)
+
 
 ## 🍎 Health & Nutrition Talk
 A special session was also conducted by a teacher **Arashdeep Singh**, where we were taught about **diet, food habits, and nutrition**.  
